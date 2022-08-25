@@ -11,4 +11,4 @@ https://tr.linkedin.com/in/uekapps
 https://twitter.com/uekapps  
 https://bionluk.com/uekapps  
   
-  Youtube Linki: https://youtu.be/IxRziuIoxc0
+  Youtube Linki: https://youtu.be/J3cdrJRZWvk
